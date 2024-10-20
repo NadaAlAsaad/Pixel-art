@@ -1,0 +1,1 @@
+This Pixel Art project is a fun and creative way to explore digital art . It allows users to create and manipulate pixel art images, providing an engaging platform for both beginners and experienced artists.
